@@ -1,0 +1,2 @@
+# AllTimeAllPlacesChochoinLyricsochoi
+古今東西ちょちょいのちょい 全国47都道府県各バージョンの歌詞
