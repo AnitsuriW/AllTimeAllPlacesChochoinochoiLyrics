@@ -2,11 +2,17 @@
 古今東西ちょちょいのちょい 全国47都道府県各バージョンの歌詞
 
 ## 購入
+
 [「古今東西ちょちょいのちょい」【北海道＋東北地方盤】](https://www.animate-onlineshop.jp/pd/2954939/)
+
 [「古今東西ちょちょいのちょい」【関東地方盤】](https://www.animate-onlineshop.jp/pd/2954940/)
+
 [「古今東西ちょちょいのちょい」【中部地方盤】](https://www.animate-onlineshop.jp/pd/2954941/)
+
 [「古今東西ちょちょいのちょい」【近畿地方盤】](https://www.animate-onlineshop.jp/pd/2954942/)
+
 [「古今東西ちょちょいのちょい」【中国＋四国地方盤】](https://www.animate-onlineshop.jp/pd/2954943/)
+
 [「古今東西ちょちょいのちょい」【九州＋沖縄地方盤】](https://www.animate-onlineshop.jp/pd/2954944/)
 
 ## 关于本项目
